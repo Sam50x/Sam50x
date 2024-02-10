@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Sam50x
+- 👀 I’m interested in becoming better everyday
+- 🌱 I’m currently learning Java
+- 💞️ I’m looking to collaborate on lotta things
+- 📫 How to reach me (don't)
+- 😄 Pronouns: straight ass
+- ⚡ Fun fact: livin' in Egypt
